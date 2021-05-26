@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @janvirathi
-- 👀 I’m interested in sports, coding, designing
-- 🌱 I’m currently learning python
+- 👀 I’m interested in POWER
+- 🌱 GUESS WHAT? I'm still learning 
 - 📫 How to reach me janvirathee10@gmail.com
 
 <!---
