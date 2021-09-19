@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janvirathi
-- 👀 I’m interested in POWER
+- 👀 I’m interested in Cyber Security
 - 🌱 GUESS WHAT? I'm still learning 
 - 📫 How to reach me janvirathee10@gmail.com
 
