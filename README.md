@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janvirathi
-- 👀 I’m interested in Cyber Security
+- 👀 I’m interested in Technology
 - 🌱 GUESS WHAT? I'm still learning 
 - 📫 How to reach me janvirathee10@gmail.com
 
